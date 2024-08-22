@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Getting CO-Ops 
 - 📫 How to reach me IJMacphe@uwaterloo.ca
 - 😄 Pronouns: me/Him 
-- ⚡ Fun fact: I ove starwars and marve and wish to make the technology a realitiy
+- ⚡ Fun fact: I ove starwars and marvel and wish to make their technology a realitiy to help society in any way possible
 
 <!---
 IanJinzoTakeda/IanJinzoTakeda is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
